@@ -3,5 +3,5 @@
 
 
 - 🌱 I’m currently working on Projects
-- I love to solve problems and also have fun while learning new things.
+- 👯 I love to solve problems and also have fun while learning new things.
 - 📫 How to reach me **momohridwan@gmail.com**
